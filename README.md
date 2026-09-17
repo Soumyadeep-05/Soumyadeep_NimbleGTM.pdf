@@ -1,7 +1,7 @@
 # Soumyadeep Roy
 **Location:** Agartala, Tripura
-**Contact:** +91-7085637646 | soumyadeeproy145@gmail.com[cite: 3]
-**LinkedIn:** [linkedin.com/in/soumyadeep-roу-987533276](https://linkedin.com/in/soumyadeep-roу-987533276)[cite: 3]
+**Contact:** +91-7085637646 | soumyadeeproy145@gmail.com
+**LinkedIn:** [linkedin.com/in/soumyadeep-roу-987533276](https://linkedin.com/in/soumyadeep-roу-987533276)
 
 ---
 
